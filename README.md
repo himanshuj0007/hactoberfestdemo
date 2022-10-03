@@ -64,7 +64,8 @@ thakuryashika976@gmail.com
 Aryan Panchal @aryan*260 twitter
 Aryaan Panchal @\_\_aryan8* insta
 
-
+Name: Himanshu Jaiswara
+Linkedin: https://www.linkedin.com/in/himanshu-jaiswara-a89512230/
 
 kartik batra @KartikB92363724
 
